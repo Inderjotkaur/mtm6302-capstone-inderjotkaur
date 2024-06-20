@@ -5,4 +5,5 @@
 ![Screenshot (74)](https://github.com/Inderjotkaur/mtm6302-capstone-inderjotkaur/assets/139696690/238dcf7e-543d-4499-ac29-aee87b698715)
 ![Screenshot (70)](https://github.com/Inderjotkaur/mtm6302-capstone-inderjotkaur/assets/139696690/53c331af-aa39-46f8-87b8-5a1db74d19a2)
 ![Screenshot (71)](https://github.com/Inderjotkaur/mtm6302-capstone-inderjotkaur/assets/139696690/de606764-c217-491e-bfdb-a620873d4ec4)
+![Screenshot (75)](https://github.com/Inderjotkaur/mtm6302-capstone-inderjotkaur/assets/139696690/d0df5005-90ac-4d5a-a9ac-7df1e8c33c0f)
 
