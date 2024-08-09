@@ -7,3 +7,11 @@
 ![Screenshot (71)](https://github.com/Inderjotkaur/mtm6302-capstone-inderjotkaur/assets/139696690/de606764-c217-491e-bfdb-a620873d4ec4)
 ![Screenshot (75)](https://github.com/Inderjotkaur/mtm6302-capstone-inderjotkaur/assets/139696690/d0df5005-90ac-4d5a-a9ac-7df1e8c33c0f)
 
+capston part 2
+start page 
+![image](https://github.com/user-attachments/assets/0fe187d0-5197-4405-800b-f7bf54cefd73)
+second page 
+![image](https://github.com/user-attachments/assets/b3a84610-83f3-48dc-8291-cfb1c530cc58)
+
+third page
+![image](https://github.com/user-attachments/assets/8fb2468d-dec3-49ef-bf4e-2cd627dd0b05)
